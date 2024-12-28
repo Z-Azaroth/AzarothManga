@@ -11,6 +11,7 @@
 **The manga and story is going to be seperated into two entire different parts.**
 **To Elaborate, the story is going to be its own product while the manga, although taking the story and bringing it into life, will also be its own product.**
 
+**Important: The storyline will obviously be created first.**
 ## Manga
 
 **The reason behind the 3 first books of manga being released all at once is due to tweaks being made in storyline and drawing.**
